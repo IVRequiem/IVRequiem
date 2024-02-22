@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...HTML/CSS 
 - 💬 Ask me about ... Anything
 - 😄 Pronouns: ...He/Him
-- ⚡ Fun fact: ... I love pineapple in my pizza but, I don't eat it really often.
+- ⚡ Fun fact: ... I love pineapple in my pizza,
